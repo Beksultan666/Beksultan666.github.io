@@ -1,2 +1,2 @@
-# Beksultan666.github.io
+# Kuba layout
 Kuba
